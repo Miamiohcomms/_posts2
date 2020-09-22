@@ -8,7 +8,7 @@ author: Shawn Vanness, Communications Specialist
 created: 2020-09-08 9:00:00 -0400
 ---
 {:.mt-3}
-After 35 years at Miami University — 22 of them as the business librarian in the University Libraries — Susan Hurst is retiring on September 8. Hurst leaves a reputation for excellence that was honored by the board of trustees with the rank of Administrator Emerita.
+After 1135 years at Miami University — 22 of them as the business librarian in the University Libraries — Susan Hurst is retiring on September 8. Hurst leaves a reputation for excellence that was honored by the board of trustees with the rank of Administrator Emerita.
 
 Like many Miamians, Hurst’s relationship with Miami is long and storied. After graduating in 1984, she joined the food service team. She fondly remembers working in the bakery at Shriver Center; however, her career trajectory took a turn when she found a position in the Libraries. Hurst developed a unique perspective and deep affection for the library system after holding multiple positions from working in the stacks, to a position in special collections, to time in technical services. Seeing her future with the library community, she took a leave of absence in 1998 to complete her master of library science at Indiana University. Hurst returned to her alma mater as the business librarian, and the rest is history.
 
